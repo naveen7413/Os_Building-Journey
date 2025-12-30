@@ -8,3 +8,4 @@ But i have to make this difference in that term like i have to build and achieve
 But I will make this happen
 I started again and i have exam on 4/01/2026
 i d k 
+verbal
